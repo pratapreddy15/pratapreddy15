@@ -11,4 +11,4 @@ I have skill, talent, experience and passion towards
 
 Would like to get in touch with me? Please feel free to [shoot me an email](mailto:pratapreddy15@gmail.com).
 
-Difficulty in ussing mail client? Here is my email address - pratapreddy15@gmail.com
+Difficulty in ussing e-mail client? Here is my email address - pratapreddy15@gmail.com
